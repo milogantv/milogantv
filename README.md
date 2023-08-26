@@ -3,7 +3,7 @@
 
 - 💬 Ask me about **Html Css**
 
-- 📫 How to reach me **omatvklb@gmai.com**
+- 📫 How to reach me **omatvklb@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
